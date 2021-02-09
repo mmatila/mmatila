@@ -1,4 +1,4 @@
-### Greetings stranger! 👋
+### Greetings stranger! :v:
 
 <!--
 **mmatila/mmatila** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
